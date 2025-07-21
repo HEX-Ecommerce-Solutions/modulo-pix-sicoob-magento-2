@@ -17,7 +17,7 @@
 
 - Licença vitalícia.
 
-- Atualizações vitalícia.
+- Suporte e atualização grátis por 1 ano.
 
 - Pagamento único.
 
